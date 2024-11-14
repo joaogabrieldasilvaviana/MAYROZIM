@@ -1,2 +1,0 @@
-# MAYROZIM
-BORA
